@@ -13,7 +13,7 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1.Asier Mayoz
-2.
+2.Ana Alonso
 3.
 4.
 
