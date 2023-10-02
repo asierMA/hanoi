@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1.Asier Mayoz
 2.Ana Alonso
-3.
+3. Joseph Townend
 4.
 
